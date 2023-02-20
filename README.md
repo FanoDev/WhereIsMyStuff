@@ -1,4 +1,4 @@
-![Banner](https://i.imgur.com/f1X4MUX.png)
+![Banner](https://imgur.com/8OZPuwE.png)
 
 # Tired of always losing your stuff? :skull:
 :sparkles: TELEPORT TO THEM! :sparkles:
